@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Ruchika220
 - 👀 I’m interested in Coding,Learning new languages,Trivelling
-- 🌱 I’m currently learning B.E 3rd(computer science)
+- 🌱 I’m completed B.E(computer science)
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...hiii ruchirahate
   
